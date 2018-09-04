@@ -1,2 +1,2 @@
 # Academics
-<<... but this .. All this is academics. >> (Dr. Eldon Tyrrell)
+<<... but this .. All this is academic. >> (Dr. Eldon Tyrrell)
