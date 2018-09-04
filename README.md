@@ -1,1 +1,1 @@
-# Accademics
+# Academics
